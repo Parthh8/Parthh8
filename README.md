@@ -8,4 +8,4 @@
 I’m looking to collaborate on cloud projects.
 💬 Ask me about Java, Python, basic cloud concepts, and deployment strategies.
 
-📫 How to reach me:  LinkedIn: in/parth-latane-840273284 | Email: parth.latane@gmail.com
+📫 How to reach me:  LinkedIn: [in/parth-latane-840273284 ](https://www.linkedin.com/in/parth-latane-840273284/)| Email: parth.latane@gmail.com
